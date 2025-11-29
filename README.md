@@ -13,4 +13,4 @@
 
 
 
-[carrd](https://ha1baraswaay.carrd.co/#socials) 
+[carrd](https://ha1baraswaay.carrd.co/) 
